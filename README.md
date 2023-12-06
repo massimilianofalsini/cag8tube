@@ -1,0 +1,1 @@
+# Youtube without shorts because i lose to much time
